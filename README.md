@@ -1,2 +1,6 @@
 # Hello-World
-New and Shy
+Redemtion time.
+Focus
+consistent
+perserve 
+// Keys to success added
